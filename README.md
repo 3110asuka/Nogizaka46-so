@@ -1,0 +1,1 @@
+# Nogizaka46-so
